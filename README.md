@@ -1,4 +1,4 @@
-# 0_o
+# more stuff
 ꣑୧⊹ ˚⬭ Always open to new friends! I recommend contacting me on DC (inlovewith.n) or on Whisper (in Pony Town!).
 
 𓏼𝜗℘◟  ͜⠀◞ SUPER fan of CD Archives despite its cancellation
